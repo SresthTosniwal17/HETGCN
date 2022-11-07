@@ -1,2 +1,3 @@
 # HETGCN
-More deatils will be updated soon 
+More details will be updated soon!
+I love Pahuni 
